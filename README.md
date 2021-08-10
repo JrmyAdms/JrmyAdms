@@ -8,7 +8,9 @@
 
 - 📫 How to reach me: 
 https://www.facebook.com/jeremy.adamstribe/
+
 https://www.instagram.com/jeremy.adamstribe/
+
 Discord: Philly#2830
 
 <!---
