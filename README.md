@@ -7,6 +7,7 @@
 - 💞️ I’m looking to collaborate on any interesting projects that would have me. I don't have much experience collaborating but it does seem exciting to me
 
 - 📫 How to reach me: 
+
 https://www.facebook.com/jeremy.adamstribe/
 
 https://www.instagram.com/jeremy.adamstribe/
